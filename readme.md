@@ -1,0 +1,5 @@
+- 👋 Hola a todos. @Soyandreyna 
+- 👀 He trabajado en Marketing Digital desde el 2017.
+- 🌱 Actualmente estoy haciendo la Carrera de Desarrollo Web en Platzi.
+- 💞️ Y mi objetivo este 2022 es conseguir mi primer empleo en IT.
+- 📫 How to reach me: andreyna.araujo.nunez@gmail.com.
